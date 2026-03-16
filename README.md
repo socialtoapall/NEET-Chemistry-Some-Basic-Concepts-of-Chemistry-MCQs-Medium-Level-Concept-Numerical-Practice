@@ -1,0 +1,2 @@
+# NEET-Chemistry-Some-Basic-Concepts-of-Chemistry-MCQs-Medium-Level-Concept-Numerical-Practice
+Practice medium-level NEET MCQs from the Some Basic Concepts of Chemistry chapter covering mole concept, stoichiometry, concentration terms, empirical and molecular formulas, and limiting reagent. These questions help strengthen conceptual understanding and improve numerical problem-solving for NEET preparation. 
